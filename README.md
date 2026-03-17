@@ -1,0 +1,2 @@
+# plan-na-zotaveni
+zotavovací
